@@ -1,2 +1,0 @@
-# Covid19Assignment11908597Snehlata
-CA3
